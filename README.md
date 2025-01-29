@@ -1,0 +1,1 @@
+# Centre-O-pattern
